@@ -74,7 +74,7 @@ When I first read this verse, I thought: *"How can water transform to fire...ign
 
 **Linguistic Analysis:**
 - **الْخُنَّسِ (Al-Khunnas)**: "The Retreaters" - objects that withdraw/retreat from view
-- **ٱلْجَوَارِ (Al-Jawari)**: "The Runners" - objects in rapid motion  
+- **ٱلْجَوَارِ (Al-Jawari)**: "The Spinners" - objects in rapid motion  
 - **ٱلْكُنَّسِ (Al-Kunnas)**: "The Sweepers" - objects that sweep up everything around them
 
 **Scientific Reality:** 
