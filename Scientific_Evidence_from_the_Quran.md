@@ -20,7 +20,7 @@ This project was born from a simple yet profound realization: **The Quran contai
 
 ### **The Scientific Reality (21st Century Understanding):**
 
-When I first read this verse, I thought: *"How can water burn?"* Then I studied the chemistry, and the answer was breathtaking.
+When I first read this verse, I thought: *"How can water transform to fire...ignited like roket feul?"* Then I studied the chemistry, and the answer was breathtaking.
 
 #### **🧪 The Water Dissociation Process:**
 
